@@ -1,0 +1,1 @@
+# Lenovo_Legion_5_15arh05h_EFI_Ryzen_5_4600H
